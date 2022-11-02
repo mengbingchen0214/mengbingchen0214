@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mengbingchen0214
 - 👀 I’m interested in singing🎤, running🏃🏻‍♀️ and podcast👂🏻
-- 🌱 I’m currently fighting for freedom and learning Swift during my spare time
+- 🌱 I’m currently fighting for freedom o(╥﹏╥)o
 - 💞️ I’m looking to collaborate on (not yet 😈)
 - 📫 How to reach me: mengbingchen0214@gmail.com
 
