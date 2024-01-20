@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @mengbingchen0214
 - 🙏 May all beings awaken to the bodhi mind, be reborn in the Land of Bliss. 
 - 📫 How to reach me: mengbingchen0214@gmail.com
 
