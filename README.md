@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @mengbingchen0214
-- 👀 I’m interested in singing🎤, running🏃🏻‍♀️ and podcast👂🏻
-- 🌱 I’m currently fighting for freedom o(╥﹏╥)o
-- 💞️ I’m looking to collaborate on (not yet 😈)
+- 🙏 May all beings awaken to the bodhi mind, be reborn in the Land of Bliss. 
 - 📫 How to reach me: mengbingchen0214@gmail.com
 
 <!---
